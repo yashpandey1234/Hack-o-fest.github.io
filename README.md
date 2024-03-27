@@ -1,2 +1,2 @@
 Hosted link
-https://yashpandey1234.github.io/hackfestdelhi.github.io/
+https://yashpandey1234.github.io/hackfestjnu.github.io/
